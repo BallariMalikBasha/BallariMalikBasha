@@ -4,6 +4,5 @@
 - 💞️ I’m looking to collaborate on exciting software projects and opportunities to grow.
 - 📫 How to reach me on Instagram at @malik_ballari
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact:  I once built a mini operating system just for fun during my coding journey!
 
 
